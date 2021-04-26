@@ -1,0 +1,2 @@
+# Nodirbekk
+Uzbhakker
